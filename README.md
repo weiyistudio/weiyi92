@@ -24,7 +24,6 @@
 [图片上传失败(image-aiCazepFVmYLaSgQ01u5)]
 [图片上传失败(image-fq0BDYqDuMRmVv49iNV2)]
 
-工作室长期接单 招校园实力代理
-需要源码请加我一下联系方式
+
 联系Q：2762501186
 ![输入图片说明](https://images.gitee.com/uploads/images/2020/1119/003728_cd598bb9_4865385.jpeg "微信.jpg")
